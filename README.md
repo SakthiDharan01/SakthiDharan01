@@ -8,7 +8,7 @@
 
 - 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/1N-Vh90MS3Hc1klImc0iead7n70vkEsja/view?usp=sharing)
 
-- ⚡ Fun fact **Outside of tech, I have a quiet passion for music and enjoy singing — though I’m a bit shy about it. It’s a personal creative outlet that helps me unwind and stay balanced.**
+- ⚡ Fun fact **Outside of tech, I have a quiet passion for music and enjoy singing . It’s a personal creative outlet that helps me unwind and stay balanced.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
